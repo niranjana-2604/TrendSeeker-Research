@@ -1,0 +1,1 @@
+# TrendSeeker-Research
